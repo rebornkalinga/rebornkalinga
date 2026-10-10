@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hey there 👋
 
 Self proclaimed Indian Muslim Hikikomori. 
 
