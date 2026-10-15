@@ -1,6 +1,6 @@
 ## Hey there 👋
 
-Self proclaimed Indian Muslim Hikikomori. 
+Self proclaimed Indian Muslim Hikikomori.
 
 <!--
 **rebornkalinga/rebornkalinga** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
